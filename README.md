@@ -6,4 +6,4 @@
 
 ### The dream will sail from here...
 
-### Chapter 1
+### Chapter 1: Self-Introduction
